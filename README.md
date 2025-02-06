@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analysis
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on any analysis project
-- 📫 How to reach me nkiepearl@gmail.com
+- 📫 How to reach me nkirukaikwuneme@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love singing
 
