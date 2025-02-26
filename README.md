@@ -2,8 +2,8 @@
 - 👀 I’m a data analyst passionate about documentung my learning journey.
 - 🌱 I’m currently learning data storytelling.
 - 💞️ I’m open to collaborate on data analysis projects; volunteering or otherwise.
-- 📫 How to reach me nkirukaikwuneme@gmail.com
-- 👥 Join my WhatsApp community https://chat.whatsapp.com/I9DD3UPYLT2JhUTIOSKMEi
+- 📫 You can reach me [here](nkirukaikwuneme@gmail.com)
+- 👥 Join my WhatsApp community [here](https://chat.whatsapp.com/I9DD3UPYLT2JhUTIOSKMEi)
 
 
 <!---
